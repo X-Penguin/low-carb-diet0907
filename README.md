@@ -1,4 +1,4 @@
-题目（中）：低碳水化合物饮食可能会缩短你的寿命，除非你也吃素食
+题目（中）：吃得少，死得早？还是吃素好
 
 题目（英）：Eating a low-carb diet may shorten your life – unless you go vegan too
 
