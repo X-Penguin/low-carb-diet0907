@@ -1,10 +1,10 @@
-题目（中）：碳水少，死得早？还是吃素大法好
+题目（中）：碳水少，死得早？还是吃素好
 
 题目（英）：Eating a low-carb diet may shorten your life – unless you go vegan too
 
 原文链接：https://www.newscientist.com/article/2176933-eating-a-low-carb-diet-may-shorten-your-life-unless-you-go-vegan-too/
 
-译文链接：N/A
+译文链接：http://zhuanlan.zhihu.com/p/44040565
 
 译者：彦鑫
 
